@@ -1,1 +1,1 @@
-# 5-Peso
+# 5-Peso Instructional manual
